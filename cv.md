@@ -1,4 +1,4 @@
 # Helga Tolmacheva
 
 ## Contacts
-* discord: @kuchinawamurasaki
+* discord: kuchinawamurasaki
